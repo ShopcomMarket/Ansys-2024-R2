@@ -12,7 +12,7 @@ https://www.shopcom.tn/product/ansys-2024-r2/
 Product Price : 606,000 $
 
 Payment :
-https://www.shopcom.tn/payment
+https://www.shopcom.tn/payments
 
 Website :
 https://www.shopcom.tn
